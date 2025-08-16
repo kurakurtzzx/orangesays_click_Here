@@ -7,3 +7,5 @@
 links︵⠀[strawpage](https://tillcito.straw.page/) [rentry](https://rentry.co/kuraxxj) [ata](https://orangeguy.atabook.org/) [pinterest](https://pin.it/26oG2co2J) Ⳋ
 
 ( atabook will be in a rmk... )
+
+![Image](https://github.com/user-attachments/assets/09124b27-187b-46b1-8c08-c5ac2365c665)
