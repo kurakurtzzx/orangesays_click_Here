@@ -2,7 +2,7 @@
 
   ( ᵒ̴̶̷̣̥̀ .＾ )ಎ.  ⠀𓂃  greetings...!  visitors, right? ![Image](https://github.com/user-attachments/assets/bfd7ed9d-6b29-43e6-b653-76989195b050)
 
-︵︵  . **kura** , vanoss , till ꣒   **he**/they 
+︵︵  . ![Image](https://github.com/user-attachments/assets/c5ca8794-8294-4add-8f28-2c8762c6cb2f) **kura** , vanoss , till ꣒   **he**/they ![Image](https://github.com/user-attachments/assets/92b59119-adcd-44de-918d-b55092879906) 
 
 links︵⠀[strawpage](https://tillcito.straw.page/) [rentry](https://rentry.co/kuraxxj) [ata](https://orangeguy.atabook.org/) [pinterest](https://pin.it/26oG2co2J) Ⳋ
 
